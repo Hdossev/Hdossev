@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hdossev
-- 👀 I’m interested in Coding and developing    
+- 👀 I’m interested in coding and developing    
 - 🌱 I’m currently learning IT and E-Business
 
 
